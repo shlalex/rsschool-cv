@@ -1,7 +1,11 @@
 # SHLANDYK ALEKSEI 
 
 ***
-
+### My contacts
+* Phone: +375292508636
+* E-mail: ashlandyk@yandex.by
+* Telegram: @shl_alex
+* Discord: @alex_shl#9558
 
 ### About me
 
