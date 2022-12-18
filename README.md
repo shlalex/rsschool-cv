@@ -1,1 +1,1 @@
-https://shlalex.github.io/rsschool-cv/
+https://shlalex.github.io/rsschool-cv/index.html
